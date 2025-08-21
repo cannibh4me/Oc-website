@@ -10,7 +10,7 @@ On her 7th birthday Maya's mother shot her and left her to rot,
 but one thing she didn't know was that she just created a monster.
 
 ## Characters
-* [Maya Leons](##Maya-Leons)
+* [Maya Leons](#Maya-Leons)
 
 
 ## Maya Leons
