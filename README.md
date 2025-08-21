@@ -11,7 +11,10 @@ but one thing she didn't know was that she just created a monster.
 
 ## Characters
 * [Maya Leons](#Maya-Leons)
+* [General Info](#general-information)
 
 
 ## Maya Leons
 Just a dumb kid who accidentally got killed by her mom
+
+## General Information
